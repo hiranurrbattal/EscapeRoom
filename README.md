@@ -1,0 +1,5 @@
+----------OOP PROJE ÖDEVİ---------
+GRUP: 
+Serra Hiranur BATTAL 25120205038
+Sude AĞIRTAŞ 25120205007
+Mahmut Yasin ULUER 25120205079
